@@ -1,37 +1,15 @@
-## Welcome to GitHub Pages
+**Setting a Gaming Example**
+----------------------------
+I have two Step-children who are eight and six years old. Both of them are getting to the point where video games have become an interest. It began with the Little Dude - the oldest - who wanted to play my Nintendo DS. Then the Munchkin - the youngest - followed in her brother's footsteps. All too soon, I had to introduce the kids to the world of gaming.
 
-You can use the [editor on GitHub](https://github.com/SharkRainbow/legendary-octo-umbrella/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+![Online Gaming](https://www.gizbot.com/img/2016/08/video-gaming-shutterstock-288745394-10-1470814354.jpg)
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+The first order of business was to set the rules. Both children have characters on my accounts and will not get an account of their own on any game for some time. They also can not play unless Brad or I are right there with them. There is a strict time limit every day. For now, it's a half an hour. Video games aren't allowed until all of the chores are done, rooms are picked up and they've been good through the day.
 
-### Markdown
+We decided the last rule was the biggest one. Video games are a privilege, not a right and it's important they understand that. This rule is different for every parent. Each kid has something they enjoy, but it can't be enjoyed until the important things are done. Often, it's a reward for good behavior as well.
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+It was strange to realize that not only did we have to set the rule for the kids, but we also had to follow that rule and lead an example. It didn't really occur to us that we should do that until the Little Dude mentioned that we hadn't cleaned the messy living room. He got us there.
 
-```markdown
-Syntax highlighted code block
+This caused us to change our habits a bit as well. In order to set the example, Brad and I both could not delve into gaming until everything around the house was finished and our work was finished as well. We have also tried to make sure we don't game unless the kids are outside playing or asleep.
 
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/SharkRainbow/legendary-octo-umbrella/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+We changed our habits to not only set an example, but to make sure the most important thing was getting done - spending time with the kids. That time is now spent doing more than just painting, playing outside or making things with clay. Now, video games and all the stuff that comes with it is added to the mix.
