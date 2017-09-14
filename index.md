@@ -13,3 +13,36 @@ It was strange to realize that not only did we have to set the rule for the kids
 This caused us to change our habits a bit as well. In order to set the example, Brad and I both could not delve into gaming until everything around the house was finished and our work was finished as well. We have also tried to make sure we don't game unless the kids are outside playing or asleep.
 
 We changed our habits to not only set an example, but to make sure the most important thing was getting done - spending time with the kids. That time is now spent doing more than just painting, playing outside or making things with clay. Now, video games and all the stuff that comes with it is added to the mix.
+
+Best places to visit in Southern Vietnam
+----------------------------------------
+
+Southern Vietnam is famous for large and development entertainment centers, friendly and hospitable people, unique cultural features. Ho Chi Minh City, one of the two largest and most development cities in the country, is also located in Sothern Vietnam. 
+
+In this article, I will introduce best [places to visit Vietnam](https://www.soarlegs.com/backpacking-vietnam/) to the South that tourists cannot miss when coming to the Southern Vietnam.Ben Thanh MarketBen Thanh Market (a symbol of Saigon) has long been a famous destination for international tourists. The market is one of most ancient works in Southern Vietnam that attract a lot of visitors every year.
+
+Ben Thanh Market – one of the best places to visit Vietnam to the South.
+
+Located in the center of city, Ben Thanh Market is not only a cultural destination of foreigners but also local people. When coming here, you can see all kinds of goods including clothes, crafts, foods …Moreover, you will have a chance to eat delicious and special dishes and then buy cute souvenirs in the market.
+
+In 2013, Ben Thanh Market was ranked the sixteenth in 45 great culinary markets in the world by USA Today Newspaper. These markets are considered as a cultural symbol of the country.Nga Bay floating marketNga Bay floating market (Phung Hiep floating market,) is a floating market in Nga Bay commune formed in 1915. It is the most famous market in Hau Giang province and the place where residents in Mekong delta buy and exchange goods. Therefore, this place is not only a market but also an interesting tourist attraction for all visitors.Nga Bay floating market – one of the best places to visit Vietnam to the South
+
+There are a large number of fruits, vegetables and utensils sale; each boat sells only one good, a kind of fruit, a kind of vegetable…Especially, Nga Bay floating market has one separate area to sell snakes, turtles, birds, squirrels, lizards …Tram Chim National ParkTram Chim National Park in Tam Nong district, Dong Thap province, is a wetland put in special use forest system of Vietnam. Here is not only considered as an attractive eco-tourism zone but also a familiar place of scientific researchers.
+
+Tram Chim National Park
+
+With an area of ​​over 7 thousand hectares, Tram Chim National Park is home to over 130 species of vascular plants, divided in to 6 types of communities. This places has many rare birds, especially, red-headed crane is a critically endangered bird species, listed in the Red Book.Phu Quoc IslandPhu Quoc Island, also known as Pearl Island, is the largest island in Vietnam and in 22 islands population here, located in the Gulf of Thailand.
+
+Phu Quoc Island – one of the best places to visit Vietnam to the South
+
+Phu Quoc is determined as eco-tourism center and trade hub with international stature. There are a lot of wonderful and breathtaking landscapes such as Phu Quoc National Park, Phu Quoc Marine Protected Area, An Thoi Island, Ham Ninh fishing village.
+
+Phu Quoc is most famous for blue clean sea water, fresh air and comfortable atmosphere. When coming here, you will have an opportunity to dive into the sea to see colorful coral reefs, sunbathing and find out marine animals. You can refer to “Explore the unspoiled beauty in Phu Quoc” to know more about Pearl Island – Phu Quoc.
+
+Cu Chi tunnels
+
+Cu Chi tunnels is a defense system in the ground in Cu Chi District, 70 kilometers from Ho Chi Minh City to the north-west. This system was digged National Front for the Liberation of South Vietnam during Indochina war and Vietnam War (anti-French and anti-America). Cu Chi tunnels include clinics, many rooms, kitchen, store, working room and tunnel system underground. Cu Chi tunnels is about 200 kilometers long.
+
+Coming here, visitors will have a chance to explore tunnels, you will have to creep through small, dark and hot tunnels; you are quite difficult to breath but it will become the most memorable experience that you cannot forget.
+
+Ben Thanh Market, Nga Bay floating market, Cu Chi tunnels, Phu Quoc Island, Tram Chim National Park are 5 best places to visit Vietnam to the South that you cannot ignore. 
