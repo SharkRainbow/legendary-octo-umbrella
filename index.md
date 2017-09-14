@@ -1,6 +1,6 @@
 **Setting a Gaming Example**
 ----------------------------
-I have two Step-children who are eight and six years old. Both of them are getting to the point where video games have become an interest. It began with the Little Dude - the oldest - who wanted to play my Nintendo DS. Then the Munchkin - the youngest - followed in her brother's footsteps. All too soon, I had to introduce the kids to the world of gaming.
+I have two Step-children who are eight and six years old. Both of them are getting to the point where video games have become an interest. It began with the Little Dude - the oldest - who wanted to [play my Nintendo DS](https://www.blogdeximi.com/). Then the Munchkin - the youngest - followed in her brother's footsteps. All too soon, I had to introduce the kids to the world of gaming.
 
 ![Online Gaming](https://www.gizbot.com/img/2016/08/video-gaming-shutterstock-288745394-10-1470814354.jpg)
 
